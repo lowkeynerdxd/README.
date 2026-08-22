@@ -6,4 +6,6 @@ i like drawing,my friends ofcc,listening to songs,hugs,petting animals,and playi
 <img width="590" height="590" alt="image" src="https://github.com/user-attachments/assets/253a7029-c8da-4c41-a45c-74e9daa01aed" />
 c+h w2i are allowed if u want to be friends dont hesitate cuz im friendly i might be shy at first but ill eveantually warm up if we interact much^^also i tend to overshare a lot w/out realizing just lmk if it gets too much.And im not that good w comforting but ill listen and try my best!
 no strawpage for now bcuz im busy w fuckass school n stuff and a lazy chud💔
-<img width="1170" height="947" alt="image" src="https://github.com/user-attachments/assets/0883c93a-324d-4691-899b-a828ea460496" />
+<img width="850" height="900" alt="image" src="https://github.com/user-attachments/assets/18b1405b-8cd7-4469-ac35-045b21c71c16" />
+SON💔
+
