@@ -11,5 +11,5 @@ no strawpage for now bcuz im busy w fuckass school n stuff and a lazy chud💔
 SON💔
 <img width="3024" height="3768" alt="image" src="https://github.com/user-attachments/assets/f2022da1-9b36-485f-971f-4b492170ca0f" />
 i rly like draw.i draw w left hand👍👍
-![Uploading image.jpeg…]()
+<img width="3024" height="4032" alt="image" src="https://github.com/user-attachments/assets/acccaafa-52fa-450c-86d9-557e8250ae80" />
 
