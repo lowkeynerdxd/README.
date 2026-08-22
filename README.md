@@ -9,4 +9,4 @@ c+h w2i are allowed if u want to be friends dont hesitate cuz im friendly i migh
 no strawpage for now bcuz im busy w fuckass school n stuff and a lazy chud💔
 <img width="850" height="900" alt="image" src="https://github.com/user-attachments/assets/18b1405b-8cd7-4469-ac35-045b21c71c16" />
 SON💔
-
+https://share.icloud.com/photos/062NbBLg4KmgZ4KNLhbIOC67Q
