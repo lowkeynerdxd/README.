@@ -11,6 +11,6 @@ i like drawing,my friends ofcc,listening to songs,hugs,petting animals,and playi
 
 c+h w2i are allowed if u want to be friends dont hesitate cuz im friendly i might be shy at first but ill eveantually warm up if we interact much^^also i tend to overshare a lot w/out realizing just lmk if it gets too much.And im not that good w comforting but ill listen and try my best!
 fuck the school💔
-<img width="850" height="900" alt="image" src="https://github.com/user-attachments/assets/18b1405b-8cd7-4469-ac35-045b21c71c16" />
-SON.
+<img width="1080" height="1048" alt="image" src="https://github.com/user-attachments/assets/eb949157-adf5-4c26-b0fe-d86d5a9054b0" />
+cries😭😭
 
