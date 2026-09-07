@@ -1,16 +1,12 @@
-<img width="500" height="230" alt="image" src="https://github.com/user-attachments/assets/fe096256-a9ad-4a43-ba0d-9c4b72a847ce" />
-
-hi so im gonna introduce myself a bit ok
-FANDOMS:south park,ranfren,jjk,alnst,saiki,fnaf,vocaloid,tshd,death note,black butler
-i like drawing,my friends ofcc,listening to songs,hugs,petting animals,and playing genshin blabla also my genshin.
-<img width="300" height="40" alt="image" src="https://github.com/user-attachments/assets/2f93859b-5a65-4890-8883-1df75c0c23d0" />
-<img width="150" height="20" alt="image" src="https://github.com/user-attachments/assets/5ffc53da-e0f8-4e94-9bcf-1466f1762beb" /><img width="150" height="20" alt="image" src="https://github.com/user-attachments/assets/29d93ccb-3a18-442c-9b5c-49ed246bea2d" />
-<img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/7d59b1f2-f15e-4658-b775-09f5d29789d6" /><img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/4465bfbd-7626-428b-b141-b02d36636760"  width="150" height="20" alt="image" src="https://github.com/user-attachments/assets/b734a666-f6f5-4fb0-b628-82c1f63da26a" /> <img width="150" height="20" alt="image" src="https://github.com/user-attachments/assets/d5d359dd-6671-44e9-b50d-09c9e9ea75e6" />
+<img width="1198" height="396" alt="image" src="https://github.com/user-attachments/assets/65f794ab-29c5-4d67-a922-893f134abd96" />
 
 
+<img width="720" height="720" alt="image" src="https://github.com/user-attachments/assets/dce3c599-2517-4953-a2c9-a4aef4263ecb" />
+<img width="1080" height="1080" alt="image" src="https://github.com/user-attachments/assets/15f06fa9-79ef-4dd7-bcff-482ff33f3a19" />
 
-c+h w2i are allowed if u want to be friends dont hesitate cuz im friendly i might be shy at first but ill eveantually warm up if we interact much^^also i tend to overshare a lot w/out realizing just lmk if it gets too much.And im not that good w comforting but ill listen and try my best!
-fuck the school💔
-<img width="1080" height="1048" alt="image" src="https://github.com/user-attachments/assets/eb949157-adf5-4c26-b0fe-d86d5a9054b0" />
-cries😭😭
+<img width="1200" height="800" alt="image" src="https://github.com/user-attachments/assets/79a73542-933a-43e1-b98d-17ee9d50b58e" />
+<img width="640" height="640" alt="image" src="https://github.com/user-attachments/assets/d1a015dd-f275-499d-bfed-987316bffc10" />
+
+
+
 
