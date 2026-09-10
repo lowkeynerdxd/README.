@@ -1,12 +1,12 @@
-<img width="1198" height="396" alt="image" src="https://github.com/user-attachments/assets/65f794ab-29c5-4d67-a922-893f134abd96" />
+<img width="1200" height="675" alt="image" src="https://github.com/user-attachments/assets/b31bc99f-9171-4d6a-97ea-0603145b4f6c" />
+
 ﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
         Wꫀׁׅܻᥣׁׅ֪ᝯׁᨵׁׅ ꩇׁׅ݊ꫀׁׅܻ  ︶༉‧₊˚.
 
-<img width="720" height="720" alt="image" src="https://github.com/user-attachments/assets/dce3c599-2517-4953-a2c9-a4aef4263ecb" />
-<img width="1080" height="1080" alt="image" src="https://github.com/user-attachments/assets/15f06fa9-79ef-4dd7-bcff-482ff33f3a19" />
+<img width="430" height="450" alt="image" src="https://github.com/user-attachments/assets/5819d7d3-78e6-4d07-a02d-39f234bfe806" />
 
    ੭୧‿⏔⏔⏔ ⑅ ꒰ 𓏵 ꒱⑅ ⏔⏔⏔‿ϑ𐑞
-<img width="640" height="640" alt="image" src="https://github.com/user-attachments/assets/d1a015dd-f275-499d-bfed-987316bffc10" />
+
 
 
 
