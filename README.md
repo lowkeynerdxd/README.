@@ -2,6 +2,7 @@
 ﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
         Wꫀׁׅܻᥣׁׅ֪ᝯׁᨵׁׅ ꩇׁׅ݊ꫀׁׅܻ  ︶༉‧₊˚.
 <img width="540" height="304" alt="image" src="https://github.com/user-attachments/assets/5d22d6db-29b6-450e-853b-e647dfc6bd58" />
+<img width="1200" height="800" alt="image" src="https://github.com/user-attachments/assets/5b48f539-ee1a-4388-8302-bdbcb4656ed0" />
 
 [strᥲw](https://gl1tterpawzz.straw.page) .☘︎ ݁˖[gυᥒsᥣoᥣ](https://guns.lol/yujisito)
 
