@@ -1,8 +1,9 @@
 <img width="430" height="450" alt="image" src="https://github.com/user-attachments/assets/72819601-aec5-4682-97bf-7f3d5a0311be" />
 ﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
         Wꫀׁׅܻᥣׁׅ֪ᝯׁᨵׁׅ ꩇׁׅ݊ꫀׁׅܻ  ︶༉‧₊˚.
+
 <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/97c69f01-b0c2-4843-9573-e661430f7e22" />
-<img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/2671c793-6326-48c4-b393-cd2bc27a2f65" />
+<img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/2671c793-6326-48c4-b393-cd2bc27a2f65" /> 
 <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/18a2c582-88d6-4c87-bedb-15e94f509593" />
 <img width="540" height="304" alt="image" src="https://github.com/user-attachments/assets/5d22d6db-29b6-450e-853b-e647dfc6bd58" />
 <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/39e2116a-daf1-4ce6-90e0-af03828f8305" /><img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/e5379689-f4ce-4ec6-815b-2564428586e0" />
