@@ -3,6 +3,8 @@
         Wꫀׁׅܻᥣׁׅ֪ᝯׁᨵׁׅ ꩇׁׅ݊ꫀׁׅܻ  ︶༉‧₊˚.
 <img width="540" height="304" alt="image" src="https://github.com/user-attachments/assets/5d22d6db-29b6-450e-853b-e647dfc6bd58" />
 
+### 🔗 My Links
+* **StrawPage:** [Visit my custom layout](https://straw.page)
 
 
 <img width="430" height="450" alt="image" src="https://github.com/user-attachments/assets/5819d7d3-78e6-4d07-a02d-39f234bfe806" />
