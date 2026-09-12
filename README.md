@@ -19,5 +19,6 @@
 <img width="430" height="450" alt="image" src="https://github.com/user-attachments/assets/5819d7d3-78e6-4d07-a02d-39f234bfe806" />
 
    ੭୧‿⏔⏔⏔ ⑅ ꒰ 𓏵 ꒱⑅ ⏔⏔⏔‿ϑ𐑞
-  
-<img width="430" height="450" alt="image" src="https://github.com/user-attachments/assets/0601b5f0-816f-4a53-9626-31d864edbb4d" />HELP
+  <img width="880" height="1101" alt="image" src="https://github.com/user-attachments/assets/c6a5f96c-2918-42c9-b2fb-2245e672aeff" />💔😭😭
+
+
