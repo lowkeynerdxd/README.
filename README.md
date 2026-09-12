@@ -2,7 +2,6 @@
 ﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
         Wꫀׁׅܻᥣׁׅ֪ᝯׁᨵׁׅ ꩇׁׅ݊ꫀׁׅܻ  ︶༉‧₊˚.
 <img width="540" height="304" alt="image" src="https://github.com/user-attachments/assets/5d22d6db-29b6-450e-853b-e647dfc6bd58" />
-https://blinkiecollecti0n.neocities.org/images/iluvcats.gif
 
 
 [strᥲw](https://gl1tterpawzz.straw.page) .☘︎ ݁˖[gυᥒsᥣoᥣ](https://guns.lol/yujisito)
