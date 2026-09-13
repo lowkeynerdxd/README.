@@ -3,7 +3,7 @@
         Wꫀׁׅܻᥣׁׅ֪ᝯׁᨵׁׅ ꩇׁׅ݊ꫀׁׅܻ  ︶༉‧₊˚.
     <img width="430" height="450" alt="image" src="https://github.com/user-attachments/assets/a0b22319-9043-4d8a-84d0-001cf6521296" />
 
-[strᥲw](https://gl1tterpawzz.straw.page) .☘︎ ݁˖[gυᥒsᥣoᥣ](https://guns.lol/yujisito)
+💝’ed[strᥲw](https://lowkeynerdxd.straw.page) .☘︎ ݁˖[gυᥒsᥣoᥣ](https://guns.lol/yujisito)
 <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/97c69f01-b0c2-4843-9573-e661430f7e22" />
 <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/2671c793-6326-48c4-b393-cd2bc27a2f65" /> 
 <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/18a2c582-88d6-4c87-bedb-15e94f509593" />
