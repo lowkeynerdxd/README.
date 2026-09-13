@@ -18,6 +18,6 @@
 
 <img width="430" height="450" alt="image" src="https://github.com/user-attachments/assets/5819d7d3-78e6-4d07-a02d-39f234bfe806" />
 
-  <img width="880" height="1101" alt="image" src="https://github.com/user-attachments/assets/c6a5f96c-2918-42c9-b2fb-2245e672aeff" />💔😭😭
+  
 
 
